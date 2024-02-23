@@ -2,7 +2,7 @@
 - 👀 I’m interested in everyhing that reveloves around coding 😏
 - 🌱 I’m currently learning  
 - 💞️ I’m looking to collaborate on Web/Mobile app projects
-- 📫 How to reach me youcefffouad.laleg@gmail.com
+- 📫 How to reach me youceffouad.laleg@gmail.com
 - 😄 Pronouns:  "D" I got the will of the D 🏴‍☠️ 
 - ⚡ Fun fact: Nothing is impossible 🕸️
 <!---
